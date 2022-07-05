@@ -1,7 +1,7 @@
 ## 格力高采访
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
 
-![avatar](https://www.picuki.com/hosted-by-instagram/url=https%3A%7C%7C%7C%7Cinstagram.fiev22-2.fna.fbcdn.net%7C%7Cv%7C%7Ct51.2885-15%7C%7Ce35%7C%7C83090925_222479188911952_2870593249194225406_n.jpg%3F_nc_ht%3Dinstagram.fiev22-2.fna.fbcdn.net%26_nc_cat%3D104%26_nc_ohc%3Ddxr5xFQNqBAAX_XypZf%26edm%3DAABBvjUBAAAA%26ccb%3D7-4%26oh%3Dd3123f330c88eeba210083e77aa0121a%26oe%3D61422A7D%26_nc_sid%3D83d603)
+![avatar](https://www.thefussylibrarian.com/posts/107e0bbfa11c4e6b98b99a39b44dbbac/image/embed)
 <br>
 <br>
 
